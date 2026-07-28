@@ -1,2 +1,2 @@
 # Certificados
-Todos los títulos y certificados cursados completamente
+Todos los títulos y certificados cursados completamente.
